@@ -15,3 +15,10 @@ Took one bold action even though I was uncomfortable.
 
 ---
 This log tracks my growth over time.
+
+## Bold Expressive Self - Day 1
+
+What felt different:
+What I did that I normally wouldn’t:
+What felt uncomfortable:
+What felt powerful:
