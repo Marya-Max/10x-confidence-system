@@ -1,3 +1,45 @@
+# Identity Insights
+
+## Gate 20 – Present Moment Expression
+
+Insight:
+My power comes from speaking in the now, not overthinking.
+
+When I’m aligned:
+- I speak naturally
+- I respond in real time
+- My voice feels clear and direct
+
+When I’m not aligned:
+- I overthink before speaking
+- I delay expression
+- I lose the moment
+
+Confidence Experiment:
+- Speak before overthinking
+- Trust what comes out in the moment
+
+---
+
+## Gate 17 – Opinions & Mental Clarity
+
+Insight:
+I naturally form opinions and patterns.
+
+When I’m aligned:
+- I share structured thoughts
+- I explain things clearly
+- I trust my perspective
+
+When I’m not aligned:
+- I doubt my thinking
+- I hold back my opinions
+- I wait for validation
+
+Confidence Experiment:
+- Share my perspective even if it’s not perfect
+- Trust that clarity improves through expression
+
 ---
 
 ## Channel 20-57 – Intuitive Voice in the Now
