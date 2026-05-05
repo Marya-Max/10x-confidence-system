@@ -12,3 +12,6 @@ I want to build self-trust, take bold action, and stop holding myself back.
 
 ## What I am learning
 This system will evolve as I grow.
+
+## My Intention
+I am building self-trust, confidence, and the courage to express myself fully.
