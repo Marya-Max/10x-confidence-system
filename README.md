@@ -15,3 +15,15 @@ This system will evolve as I grow.
 
 ## My Intention
 I am building self-trust, confidence, and the courage to express myself fully.
+
+## Identity Experiment: Bold Expressive Self
+
+This version of me:
+- speaks without overthinking
+- shares ideas freely
+- values expression over perfection
+
+Rules:
+- Say the thing
+- Post before overthinking
+- Trust that my voice matters
