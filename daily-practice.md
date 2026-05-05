@@ -14,3 +14,9 @@
 
 ## Rule
 Consistency over perfection.
+
+## Expression Practice
+- Speak in the moment (Gate 20)
+- Share one opinion or insight (Gate 17)
+
+- 
